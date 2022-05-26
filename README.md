@@ -1,7 +1,10 @@
 # MrSebb-Skins
 Skins que me gustan por alguna razon 
-## [ #azer8dawn](https://drive.google.com/file/d/120uC5Lz9HOSDauE2PbKVPwa_zcvfmeou/view?usp=sharing)
+## [ #azer8dawn](https://drive.google.com/file/d/1PF4cF4Q8t2lF1HVGAWdrCj6WY29dB_xt/view?usp=sharing)
 ![](https://i.imgur.com/Pn8yQZ8.png)
+
+## [-        # Sebb 『Mugi』 #DT        -](https://drive.google.com/file/d/1PF4cF4Q8t2lF1HVGAWdrCj6WY29dB_xt/view?usp=sharing)
+![](https://i.imgur.com/CyAZXPI.png)
 
 ## [-         《CK》 Bacon boi 1.0 『blue』](https://drive.google.com/file/d/1DHKixh8-J3Dmfm4siuwAIZuWiaOS4rxv/view?usp=sharing)
 ![](https://i.imgur.com/EibLwDp.png)
