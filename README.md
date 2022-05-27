@@ -39,4 +39,9 @@ Skins que me gustan por alguna razon
 ## [La Grasa :v](https://drive.google.com/file/d/15Od_yfUAvMo4LuVhEA05iuq5Yb6PMh-f/view?usp=sharing)
 ![](https://i.imgur.com/QwN1qxF.png)
 
+# [Jace 6.25](https://download2062.mediafire.com/sgw45zsh33cg/r4mclu4kgr600n7/Jace+6.25.osk)
+![](https://skins.osuck.net/uploads/posts/2019-07/1563799041_3.jpg)
+
+# [Aristia+ edit +mReKk](https://drive.google.com/file/d/1dVIq3CLLxVQkpvglgFAC2xl24-XzLm6R/view)
+![](https://osu.ppy.sh/ss/16816850/4d8c)
 
